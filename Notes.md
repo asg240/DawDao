@@ -1,0 +1,1 @@
+Look into the SEC and whether we would be seen as a security or Broker-dealer as related to exange rules. If that is the case we will need special licencing.
